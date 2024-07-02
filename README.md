@@ -79,7 +79,7 @@ Feel free to reach out to me through the following channels:
 
 - **Email**: [asangohi09@gmail.com](mailto:asangohi09@gmail.com)
 - **LinkedIn**: [Aniket Sangohi](linkedin.com/in/aniket-sangohi-883252128/)
-- **Twitter**: [@yourtwitterhandle](https://twitter.com/yourtwitterhandle)
+- **Twitter**: [@El__Do_RaDo](https://x.com/El__Do_RaDo)
 
 ## Acknowledgements
 
